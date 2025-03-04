@@ -52,7 +52,3 @@ Linear Transformations
 
 
 
-
-hahahahahahahaahahahaha
-KEHDE
-
